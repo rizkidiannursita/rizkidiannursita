@@ -1,0 +1,2 @@
+# rizkidiannursita
+A lifetime learner
